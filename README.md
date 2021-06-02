@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @ShariBeech
-- 👀 I’m interested in Multimedia and Databse Administration
+- 👀 I’m interested in Multimedia and Database Administration
 - 🌱 I’m currently studying a bachelor's degree in computing
+- 🤝I'm looking for a group of like-minded people who wish for success and growth.
+- ☀️Islander🌴🏝
 
 
 <!---
